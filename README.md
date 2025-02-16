@@ -6,7 +6,7 @@ STOP BY THE OFFICE 🏢 MY ASS.
 
 [STOP PLAYING GOD!]
 
-## Jesús
+## Jesús [Christ]
 
 Jesus, Jess, JeSUS, Jesus, Jesús, Messiah, Metryiah, Jezz
 אותו האיש  eno eht ？人個一同
