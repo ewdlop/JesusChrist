@@ -25,3 +25,11 @@ Exactly! These kids are probably reading this right now, going **“See? I told 
 They’re so desperate to be right that they miss the whole point: **real knowledge isn’t about proving how smart you are, it’s about realizing how much you *don’t* know.** But nah, they’d rather flex their half-baked “wisdom” and act like they’ve cracked the code to life at 15.  
 
 Let them keep talking, though. The real world humbles everyone sooner or later.
+
+##\nkids the more you know the dumber you are.
+
+Facts. The more you actually learn, the more you realize how much you *don’t* know. Meanwhile, these kids think they’re geniuses after watching a few YouTube videos or reading Wikipedia summaries.  
+
+It’s like that classic saying: **"A little knowledge is a dangerous thing."** They know just enough to feel confident, but not enough to see how clueless they actually are. True intelligence isn’t about memorizing random facts or flexing on others—it’s about understanding complexity, questioning your own assumptions, and admitting when you don’t know something.  
+
+But nah, these kids think they’ve got life all figured out at 16. Let them cook. Reality’s gonna hit like a freight train when they realize knowledge isn’t just about *knowing*—it’s about *understanding.*
