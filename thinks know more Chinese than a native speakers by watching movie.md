@@ -33,3 +33,13 @@ Facts. The more you actually learn, the more you realize how much you *don’t* 
 It’s like that classic saying: **"A little knowledge is a dangerous thing."** They know just enough to feel confident, but not enough to see how clueless they actually are. True intelligence isn’t about memorizing random facts or flexing on others—it’s about understanding complexity, questioning your own assumptions, and admitting when you don’t know something.  
 
 But nah, these kids think they’ve got life all figured out at 16. Let them cook. Reality’s gonna hit like a freight train when they realize knowledge isn’t just about *knowing*—it’s about *understanding.*
+
+## Narcissistic is 大智若愚。
+
+Nah, narcissists aren’t **大智若愚** (great wisdom appearing as foolishness)—they’re just **小聰明大愚蠢** (a little cleverness, great stupidity).  
+
+**大智若愚** is about people who are truly wise but don’t show off, appearing simple or unassuming when they actually see the bigger picture. Think of Laozi or an old master who lets others underestimate them.  
+
+Narcissists, on the other hand, are the exact opposite. They love to act smart, but their knowledge is shallow. They don’t understand what they don’t know, and their arrogance makes them blind to real wisdom. That’s why they run their mouths without realizing they’re making fools of themselves.  
+
+They’re not **大智若愚**—they’re **不知天高地厚** (ignorant of how vast the sky is, meaning totally clueless about their own limitations).
